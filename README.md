@@ -1,2 +1,0 @@
-# Novy
-nceo cokoliv
